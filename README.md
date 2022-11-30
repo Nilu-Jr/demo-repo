@@ -1,3 +1,10 @@
-# Demo 
+# The Nilu Jr Organization
 
-Some description!
+## A place where families matter 
+
+### reuniting youths with there families is our mission 
+
+
+
+
+
